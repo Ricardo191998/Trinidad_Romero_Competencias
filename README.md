@@ -1,0 +1,1 @@
+# Trinidad_Romero_Competencias
